@@ -7,4 +7,7 @@ https://18comic.vip/static/apk/1.7.0.apk
 
 https://jmcomic1.me/static/apk/1.7.0.apk
 
+jm網頁版
 https://18comic.vip/stray
+https://18comic.vip/
+https://18comic.org/
