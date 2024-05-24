@@ -4,6 +4,7 @@
 禁漫官网的1.7.0.apk下载链接：
 安卓版本
 https://18comic.vip/static/apk/1.7.0.apk
+
 ios版本
 https://jmcomic1.me/static/apk/1.7.0.apk
 
